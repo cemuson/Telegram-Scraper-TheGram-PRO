@@ -86,3 +86,7 @@ For support and community discussions:
 
 ---
 
+<img width="1357" height="726" alt="sfASFasfsı" src="https://github.com/user-attachments/assets/70f4e6df-39f1-4419-8f37-6ca08e9ef27a" />
+<img width="1352" height="591" alt="sfASFas2fsı" src="https://github.com/user-attachments/assets/353404c1-1168-414d-a2fc-10d8aa121b81" />
+<img width="1363" height="583" alt="sfASFas3fsı" src="https://github.com/user-attachments/assets/254a9eeb-b83f-464e-bb92-645cd36e8f51" />
+<img width="1366" height="651" alt="sfASFas4fsı" src="https://github.com/user-attachments/assets/c597e0c7-f8a0-4316-93f6-3677ae709234" />
